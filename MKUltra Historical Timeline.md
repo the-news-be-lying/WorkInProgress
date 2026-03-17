@@ -1,4 +1,4 @@
-CIA MKUltra: Mind Control, Torture & the Church Committee
+# CIA MKUltra: Mind Control, Torture & the Church Committee
 ### A Complete Historical Timeline with Constitutional Analysis
 *Research current through March 16, 2026 | All sources cited inline*
 
