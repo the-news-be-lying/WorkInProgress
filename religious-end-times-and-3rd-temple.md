@@ -66,6 +66,8 @@ Scofield's connection to Oxford University Press was facilitated through the Exc
 
 **The Balfour Declaration and Evangelical Influence**
 
+- **1840:** Lord Palmerston (British Foreign Secretary) advocated for Jewish resettlement in Palestine on strategic and theological grounds
+- **1841:** A "Memorandum to Protestant Monarchs of Europe for the Restoration of t
 - **November 2, 1917:** British Foreign Secretary Arthur Balfour issued the Balfour Declaration — a letter to Lord Walter Rothschild stating that "His Majesty's Government view with favour the establishment in Palestine of a national home for the Jewish people"
 - Balfour was raised in an evangelical household and regarded history as "an instrument for carrying out a Divine purpose"
 - Historians have noted that his evangelical background shaped his sympathy for Zionist aims
